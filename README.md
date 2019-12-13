@@ -119,7 +119,6 @@
 [蒋劲夫被外籍女友再次曝光家暴](https://new.qq.com/rain/a/20191127A00J94)<br>
 [35岁香港男星周永恒被拘捕，自认渣男家暴前妻](https://new.qq.com/rain/a/20191211A0CAFR00)<br>
 [明日之子学员张嫮目家暴张三弥，掰断手指、拍下私密照、打到尿失禁](http://www.sohu.com/a/339648678_720640)<br>
-[黄景瑜家暴事件再添猛料，网友围观吃瓜不断](https://www.sohu.com/a/315443556_100157691)<br>
 [网红金元宝的猪爆许凯家暴](https://www.douban.com/group/topic/112958736/)<br>
 [刘洲成家暴事件始末](http://www.sohu.com/a/164307730_99965976)<br>
 [于震家暴使妻子流产](https://baijiahao.baidu.com/s?id=1573590022154614&wfr=spider&for=pc)<br>

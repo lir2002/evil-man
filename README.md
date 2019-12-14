@@ -89,6 +89,15 @@
 [安徽合肥女子找工作面试遭猥亵](http://ah.anhuinews.com/system/2011/07/26/004282125.shtml)<br>
 [安徽颍上18岁女孩家中遭邻居性侵后被沉尸水塘 凶手被刑拘](http://www.ahyouth.com/news/20131104/1047962.shtml)<br>
 [重庆男子刺死过路陌生女子](http://n.miaopai.com/media/nqBUWiv0sNtG0s-7mchnvM7ORKV2KRoX)<br>
+[甘肃庆阳19岁女孩李奕奕因被老师吴永厚猥亵得了抑郁症，庆阳市西峰区丽晶百货大楼坠楼死亡](http://baijiahao.baidu.com/s?id=1604502112283843989&wfr=spider&for=pc)<br>
+[福建漳州华安县妈妈带5岁女奔丧雨夜被害](https://baijiahao.baidu.com/s?id=1620353836759368112&wfr=spider&for=pc)<br>
+[福建厦门思明区何厝下何片区一27岁女子被杀，犯罪嫌疑人为19岁男子](http://baijiahao.baidu.com/s?id=1648809112073686961&wfr=spider&for=pc)<br>
+[福建厦门海湾公园发现一起命案，32岁女子被63岁男子杀人后分尸抛尸](http://www.sohu.com/a/332733950_120065483)<br>
+[福建厦门思明区禾祥东路某小区外发生一起女性被杀案](http://news.hangzhou.com.cn/shxw/content/2019-11/22/content_7308787.htm)<br>
+[福建厦门思明区莲景路磐基中心酒店酷奇店一女子被64岁男子持剪刀捅伤头部、胸部、大腿，经抢救无效死亡](https://fj.qq.com/a/20140301/008808.htm)<br>
+[福建厦门打工妙龄女出租屋遇害 疑前男友下毒手](https://fj.qq.com/a/20150123/010320.htm)<br>
+[福建厦门罗宾森广场男子为抢夺年轻女子的财物，持刀砍人案](https://baike.baidu.com/item/%E5%8E%A6%E9%97%A8%E7%BD%97%E5%AE%BE%E6%A3%AE%E7%A0%8D%E4%BA%BA%E6%A1%88/16401016?fr=aladdin)<br>
+[福建厦门大学环境与生态学院在读研究生荆某被28岁男子砸伤头部后去世，男子系东北某大学毕业生](http://www.mnw.cn/xiamen/news/273758.html)<br>
 [浙江杭州加油站开进一辆车，带血女子跳车后瘫倒：叔叔救我！](https://baijiahao.baidu.com/s?id=1630507913810602428&wfr=spider&for=pc)<br>
 [浙江杭州男子公交站前突然强吻陌生女子，行政拘留10日](https://weibo.com/tv/v/GB852CAeD?fid=1034:4288491962745000)<br>
 [浙江温州快递小哥张勇上门取件性侵女客户](https://new.qq.com/omn/20181206/20181206A09CZV.html)<br>
@@ -110,6 +119,7 @@
 [福建厦门男子勒死女友后,用女友尸体申网贷](https://news.china.com/social/1007/20190820/36861189.html)<br>
 [江西27岁女子拒绝相亲男子后遇害身亡](https://new.qq.com/rain/a/20190505A09B9I)<br>
 [四川夹江男子表白遭拒，持酒瓶袭击女子至头破血流](https://baijiahao.baidu.com/s?id=1631871290212535611&wfr=spider&for=pc)<br>
+[四川广安市政协常委、广安市广安区人民政府副区长的黎某被男友林某袭击后死亡](http://opinion.people.com.cn/n1/2018/0914/c1003-30294018.html)<br>
 [辽宁20岁女子被男友用擀面杖打成植物人，男友判三年缓刑五年](http://renjian.163.com/19/1128/10/EV2INC9T000181RV.html)<br>
 [辽宁大连甘井子区南关岭一居民小区王某半夜殴打女友](https://baijiahao.baidu.com/s?id=1637370775344301104&wfr=spider&for=pc)<br>
 [辽宁大连40岁离异大叔假扮富商，3年时间交40多个女友，成功诈骗30余万](https://baijiahao.baidu.com/s?id=1630862664925749611&wfr=spider&for=pc)<br>
@@ -124,6 +134,8 @@
 [湖南男子欲和前女友复合遭拒，在女友门口点燃三个煤气罐](https://new.qq.com/omn/20190321/20190321A0G3AI.html)<br>
 [重庆网红主播“宇芽”遭家暴 前男友被行拘20天](http://www.sohu.com/a/356966322_260616)<br>
 [福建女孩自杀前遭前男友裸照威胁](http://baijiahao.baidu.com/s?id=1650510315701448134&wfr=spider&for=pc)<br>
+[福建厦门集美杏林村苑亭路女子全身赤裸出租屋内被同居男子杀害](http://365jia.cn/news/2011-07-06/E0B1E3FF6D7C63F4.html)<br>
+[福建厦门市湖里区塘边社一出租屋两女惨遭杀害，凶手为一名女性的前男友](http://www.mnw.cn/xiamen/news/1158616.html)<br>
 [贵州遵义男子纠缠前女友，砍女子头部5刀，十根手指全被砍断](http://n.miaopai.com/media/SoNZ5K4U47GlI46w1sWzHomnMPvTri8d)<br>
 [陕西男子连捅恋人数刀致其死亡](http://n.miaopai.com/media/xgtgi8raGYswyLj~-KaDDhiIgYsDh6dA)<br>
 [湖北男子兰某将前女友脱裤绑树上持刀威胁复合](http://news.sina.com.cn/o/2019-04-17/doc-ihvhiqax3394606.shtml)<br>
@@ -131,7 +143,7 @@
 [江苏连云港男子驾车拐弯剐蹭路边女友，随后将其撞倒后驾车碾压](https://www.56.com/u53/v_MTUwNjk1NTU0.html)<br>
 
 ### 与学历无关
-[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://new.qq.com/sv1/qd/aoyou.html?cmsid=20191212A091IE00)<br>
+[不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://www.thepaper.cn/newsDetail_forward_5226837)<br>
 [大连一研究生出轨后，将妻儿掐死，被判无期](http://news.sina.com.cn/s/2018-10-02/doc-ihkvrhps0680457.shtml)<br>
 [北大吴谢宇弑母案](http://news.chinaxiaokang.com/shehuipindao/fazhi/20191204/854303.html)<br>
 [清华法律硕士男子商场偷拍，行政拘留7日](http://m.sohu.com/a/318182186_355832)<br>
@@ -166,6 +178,8 @@
 [环保公益人冯永锋被曝对其机构的女实习生和女性员工袭胸、暴打和强奸](https://news.qq.com/a/20180724/034028.htm)<br>
 [葵花药业原董事长关彦斌杀妻被大庆市让胡路区人民检察院批捕](http://finance.ifeng.com/c/7llJEsrBjdx)<br>
 [“百色助学网”负责人王杰强奸、诈骗](http://www.sohu.com/a/285430013_120078003)<br>
+[刘强东性侵](https://baike.baidu.com/item/%E5%88%98%E5%BC%BA%E4%B8%9C%E6%80%A7%E4%BE%B5%E9%97%A8/22851864?fr=aladdin)<br>
+[新城控股前董事长猥亵儿童案](https://baijiahao.baidu.com/s?id=1638382336334323716&wfr=spider&for=pc)<br>
 
 ### 性骚扰
 [广西男子公交性骚扰被发现，掏刀恐吓被行拘15日](http://n.miaopai.com/media/LxKJlAiiw6k19G7RwVsuOiTnJ~XVCT-f)<br>
@@ -243,12 +257,13 @@
 [河北唐山市丰南区男子杀妻](http://m.sohu.com/a/207197993_684478)<br>
 [河北廊坊霸州市一基层政府工作人员杀妻与3岁儿子后跳楼身亡](http://m.sohu.com/a/123025036_123753/)<br>
 [北京大兴区黄村镇清澄名苑小区男子张武力杀妻灭子](http://news.sohu.com/20091228/n269246295.shtml)<br>
+[北京王光宇虐妻致死罪仅被判六年](https://www.sohu.com/a/256822941_100237370)<br>
 [云南一女子遭丈夫长期家暴从13楼跳下身亡](http://www.sohu.com/a/312278949_816658)<br>
 [云南怒江州泸水市六库镇一男子杀妻](https://baijiahao.baidu.com/s?id=1609199434142137545&wfr=spider&for=pc)<br>
 [湖北黄石7旬老汉黄某杀妻跳江](https://baijiahao.baidu.com/s?id=1633422941572766680&wfr=spider&for=pc)<br>
 [湖北枣阳市姚岗十字街崔立冬杀妻灭女](https://baijiahao.baidu.com/s?id=1628763463573998240&wfr=spider&for=pc)<br>
 [湖北咸阳检察长杀妻案](http://news.ifeng.com/society/detail_2006_08/31/855361_0.shtml)<br>
-[湖南郴州男子范某持砖将正在医院包扎治疗的妻子何某杀害](https://baijiahao.baidu.com/s?id=1620446664466402632&wfr=spider&for=pc)<br>
+[湖南郴州男子范某持砖将正在医院包扎治疗的妻子何某杀害，提砖头当女儿面杀妻 还将尸体照片发到妻子家人群](http://www.sohu.com/a/282994065_100191052)<br>
 [湖南新化男子涉嫌杀妻](https://baijiahao.baidu.com/s?id=1619788245694646538&wfr=spider&for=pc)<br>
 [湖南常德西洞庭男子陈某持刀杀妻](http://hunan.sina.com.cn/news/2015-08-25/detail-ifxhcvsf1100701.shtml)<br>
 [四川巴中女教师在电梯被丈夫打掉牙齿后坠亡，警方不予立案](https://static.cdsb.com/micropub/Articles/201911/e66e1fa18690db3957d054ddbf20075f.html)<br>
@@ -282,6 +297,7 @@
 [浙江杭州建德男子掐死妻子抛尸山里，之后还照常带孩子回丈母娘家吃饭](http://www.sohu.com/a/233350808_226668)<br>
 [浙江余姚市张某杀妻抛尸](http://news.cri.cn/gb/42071/2015/11/11/5311s5163164.htm)<br>
 [浙江嘉兴男子邵某杀妻绞肉碎尸抛尸](http://www.sohu.com/a/41574163_110565)<br>
+[浙江丽水市松阳县一男子违反人身安全保护令对妻子再施暴，被司法拘留5天](https://www.thepaper.cn/newsDetail_forward_5228267)<br>
 [广州一女子被前夫暴打致死，生前曾向警方求助](http://baijiahao.baidu.com/s?id=1647711192000576255&wfr=spider&for=pc)<br>
 [广州海珠区康乐村某出租屋张某杀害妻子夏某](https://baijiahao.baidu.com/s?id=1598800778809681340&wfr=spider&for=pc)<br>
 [广东一男子在街头骑摩托撞飞妻子，随后拿出镰刀追砍](http://n.miaopai.com/media/K-1ZkRzRbRhyzY2wMhQBxz~xk1CQrKbq)<br>
@@ -335,6 +351,12 @@
 [山西沁水县少女遭养父养兄性侵，养父：又不是亲生的](https://baijiahao.baidu.com/s?id=1620346394132786478&wfr=spider&for=pc)<br>
 [江苏扬州11岁女孩疑遭养父性侵诞下女婴](https://international.dbw.cn/system/2015/10/20/056888319.shtml)<br>
 [江苏省镇江市丹徒区继父性侵女儿，12岁的小姑娘怀孕五个月！](http://js.xhby.net/system/2017/01/06/030390726.shtml)<br>
+
+### 谁的命不是命
+
+## 它们可以做 她们不能说
+2018年07月27日，关于央视主持人朱军性侵女实习生的微博被和谐，微博《[朱军，最后一颗子弹献给你](https://zhuanlan.zhihu.com/p/40622877)》 一文亦被删
+2018年11月2日，网友@徒有琴 将自己翻唱的歌《天朝渣男图鉴》放到微博，徒有琴童鞋一人分饰六角，饰演6个杀了丈夫的女人。她用上海、北京、广东等地方言讲述了为何杀夫，随后该歌曲被和谐，徒有琴使用了8年的微博亦被封禁。截至目前该歌曲仅在QQ音乐上有，可以试听
 
 ### 偷拍 - 法律是不保护女性的  
 2015年7月，[陕西男子商场偷拍罚款500](https://xian.qq.com/a/20150719/009708.htm)<br>

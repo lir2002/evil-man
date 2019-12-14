@@ -27,6 +27,7 @@
 [河南许昌一家长称高三的女儿被一男子当街摸胸猥亵](http://www.sohu.com/a/278085494_352492)<br>
 [河南男子湛某侵害女孩潜逃35年 为赎罪救了许多落水者](https://zx.sina.cn/2019-11-25/zx-iihnzahi3115086.d.html?wm=3049_0018)<br>
 [河南温县子夏公园四旬男子企图性侵智残女](https://baijiahao.baidu.com/s?id=1637832799059548696&wfr=spider&for=pc)<br>
+[海南纺织工业局副局长李庆普犯贪污、嫖宿幼女、巨额财产来源不明罪被一审判20年，写两抽屉嫖娼日记共95本](http://news.jstv.com/wap/a/20191214/1576266234642.shtml)<br>
 [山东9岁女孩路上被强行塞进轿车拐走，民警25小时成功营救](https://baijiahao.baidu.com/s?id=1630593442835058246&wfr=spider&for=pc)<br>
 [山东初三女孩在家中被父亲杀害，母亲亦被家暴16年](http://n.miaopai.com/media/DAAVgnWNvMJ4J7qOlY7ymNahdbOv2QH~)<br>
 [山东济南济阳区男子暴力胁迫性侵未成年少女](http://news.china.com.cn/2019-12/02/content_75467456.htm)<br>
@@ -51,16 +52,20 @@
 [贵阳一男子公交车上猥亵14岁女生,女生锁喉猥琐男](https://weibo.com/tv/v/Igbx4momd?fid=1034:4438575123505317)<br>
 [浙江温州14岁女生看了一眼少年纹身，被打耳膜穿孔流血](https://weibo.com/tv/v/HAHTlAQBT?fid=1034:4387484902085991)<br>
 [广东茂名信宜市12岁残障女孩遭性侵后怀孕，两名公职人员涉案](http://gd.sina.com.cn/city/csgz/2019-11-20/city-iihnzahi2089189.shtml)<br>
-[广东韶关十里亭镇被性侵后怀孕，不知娃生父是谁](https://baijiahao.baidu.com/s?id=1637826747842505047&wfr=spider&for=pc)<br>
+[广东韶关十里亭镇13岁智障少女被性侵后怀孕，不知娃生父是谁](https://baijiahao.baidu.com/s?id=1637826747842505047&wfr=spider&for=pc)<br>
 [广东深圳15岁少女拒绝男子求爱遭毁容](https://baijiahao.baidu.com/s?id=1632868571879333887&wfr=spider&for=pc)<br>
+[广东广州一男子街上尾行小女孩，突然将其抱走](https://baijiahao.baidu.com/s?id=1650601371835512804&wfr=spider&for=pc&isFailFlag=1)<br>
 [6旬男子常某火车上多次亲15岁女孩 女孩被吓哭](https://www.yidianzixun.com/article/0KYbmjoF?s=mb&miref=newsin_app_push&docid=0KYbmjoF&cp=cn-browser-push&itemtype=news)<br>
 [江西11岁女孩被15岁男孩杀害再遭焚烧](http://www.sohu.com/a/137535382_393127)<br>
+[台湾台南才女作家林奕含13岁被被禽兽老师陈星(原名陈国星)诱奸，患抑郁多年,26岁选择自杀身亡](https://www.sohu.com/a/230853152_486463)<br>
 [甘肃天水武山县15岁女孩在校外寄宿，被50岁房东强奸后又被年过5旬的老光棍性侵](http://gansu.gansudaily.com.cn/system/2016/07/02/016195461.shtml)<br>
+[黑龙江省五大连池市兴安乡龙山村14岁女孩被全家性侵案](http://news.cctv.com/2018/07/27/ARTISrIwgEFSHSnBarBb0xo7180727.shtml)<br>
 [福建漳州一女中学生订外卖竟遭送餐员猥亵](http://fj.sina.com.cn/news/s/2018-11-14/detail-ihmutuea9966717.shtml)<br>
 [福建龙岩连城14岁智障少女疑遭多人性侵 生女婴不知父亲是谁](http://news.sina.com.cn/s/wh/2017-05-13/doc-ifyfeivp5661161.shtml)<br>
 [福建宁德寿宁县一所小学教师陈某某强奸13岁女孩](http://www.mnw.cn/news/nd/1394083.html)<br>
 [北京16岁少女在昌平新东方外国语学校601教室遭17岁的王祎哲强奸并勒死](https://baijiahao.baidu.com/s?id=1597462605925601496&wfr=spider&for=pc)<br>
 [北京市海淀区女生被家教家中性侵一年](http://m.sohu.com/a/313494814_120046886)<br>
+[北京东城一女中学生早晨在天坛东路附近被41岁男子杀害](https://xw.qq.com/amphtml/20191121A0KRI900)<br>
 [台湾新北市一17岁女生疑遭性侵 校内产女婴](http://tv.cntv.cn/video/C10361/77441E8C61F5477cAE55CA88C97B438D)<br>
 [江苏响水两名11岁的小女孩被托管老师性侵10多次](http://baijiahao.baidu.com/s?id=1598603167361764583&wfr=spider&for=pc)<br>
 [江苏连云港一男子持木棍暴打一对亲生儿女](http://n.miaopai.com/media/Hzc-jriyhB9G8o5Ykg-nm-zmm3LR2F-l)<br>
@@ -76,6 +81,7 @@
 [广东东莞女子路边打电话,赤膊长发男路过突然挥拳 一拳将其打进屋内](http://n.miaopai.com/media/9eEFglnz8QJG-G9Hj1gyuOtuKVW0rHjC)<br>
 [广东佛山市男子将陌生女孩从商场3楼扔下 被刑拘](https://ishare.ifeng.com/c/s/7jmn1d9WZfM)<br>
 [广东汕头男子入室强奸遭女孩拒绝改谈人生 被抓后仍获刑](https://baijiahao.baidu.com/s?id=1643565665544019258&wfr=spider&for=pc)<br>
+[广东省广州市海珠区聚德东路陌生男子性骚扰，叫嚣：我最多十几天就出来](https://m.weibo.cn/2141306382/4430947249837623)<br>
 [陕西西安某男子对3名服务员实施猥亵，被行政拘留10日](https://weibo.com/tv/v/HCuNV29qJ?fid=1034:4391748403662459)<br>
 [陕西蓝田怀孕女护士遭劫杀案告破](https://baijiahao.baidu.com/s?id=1589254651213647411&wfr=spider&for=pc)<br>
 [山西太原火车站：女大学生在餐厅遭40岁男子猥亵，愤怒发声](https://baijiahao.baidu.com/s?id=1630235521094525439&wfr=spider&for=pc)<br>
@@ -83,9 +89,12 @@
 [江西某男子校门口持刀猛刺女子 三人冲上前将其制服](http://www.bjnews.com.cn/wevideo/2018/10/17/511817.html)<br>
 [武汉已婚男子地铁内搭讪女孩被拒 挥拳暴击对方](http://hb.sina.com.cn/news/b/2019-04-21/detail-ihvhiewr7363361.shtml?from=hb_tttj)<br>
 [武汉一花季女大学生被性侵 作案者竟是闺蜜男友](https://hb.qq.com/a/20171122/007253.htm)<br>
+[云南昆明理工大学大二学生李心草被一男子打耳光，被发现时已溺亡](https://new.qq.com/omn/20191013/20191013A0K26Y00.html)<br>
+[湖南衡阳市衡南县三塘镇星火实验中学周姓女老师被陌生男子殴打](https://m.baidu.com/sf_baijiahao/s?id=1650592154665454766&wfr=spider&for=pc)<br>
 [河南少女失踪6年后被找到，已与一对父子生3孩并精神分裂](https://baijiahao.baidu.com/s?id=1620782852540777374&wfr=spider&for=pc)<br>
 [河南“女大学生遭性侵毁尸案”](http://www.bjnews.com.cn/news/2019/08/23/618720.html)<br>
 [河南洛阳女孩深夜约饭险遭性侵微信发出“95”求救 警方7分钟救出](https://henan.qq.com/a/20190221/004749.htm)<br>
+[河南洛阳失联20岁女孩狄含笑被男同事李某杀害](https://new.qq.com/rain/a/20191209A08OZI)<br>
 [安徽马鞍山男子深夜搭讪被拒，将女孩拖拽出监控范围殴打](http://www.sohu.com/a/332776688_100252823)<br>
 [安徽合肥女子找工作面试遭猥亵](http://ah.anhuinews.com/system/2011/07/26/004282125.shtml)<br>
 [安徽颍上18岁女孩家中遭邻居性侵后被沉尸水塘 凶手被刑拘](http://www.ahyouth.com/news/20131104/1047962.shtml)<br>
@@ -110,6 +119,7 @@
 [广西柳州一女孩登山被抢劫杀害遗体遭性侵 凶手被抓时正在嫖娼](http://hb.sina.com.cn/news/2017-06-22/detail-ifyhmtek7641210.shtml)<br>
 [江苏常州湖塘老街男子杀害一女子](https://www.yidianzixun.com/article/0KGDYdmn?s=mb&miref=newsin_app_push)<br>
 [江苏省东台市女教师爆料：已婚男教师多次夜闯她宿舍](https://baijiahao.baidu.com/s?id=1617743217338293919&wfr=spider&for=pc)<br>
+[台湾的富少李宗瑞在夜店下药，将数十名女子迷倒带回家中性侵偷拍](https://mbd.baidu.com/newspage/data/landingsuper?context={%22nid%22%3A%22news_9626945971653129319%22}&n_type=1&p_from=3)<br>
 [贵州黎平县德凤街道某商住小区电梯内男子猥琐女子](https://baijiahao.baidu.com/s?id=1612859795737194376&wfr=spider&for=pc)<br>
 [上海超级越野赛女选手山林里遭村民手持刀具猥亵](https://www.sohu.com/a/278900532_100048098)<br>
 
@@ -142,6 +152,8 @@
 [湖北男子兰某将前女友脱裤绑树上持刀威胁复合](http://news.sina.com.cn/o/2019-04-17/doc-ihvhiqax3394606.shtml)<br>
 [江苏徐州男子冒充“霸道总裁”，先后诈骗3名女性受害人，总计约20余万元财物](https://baijiahao.baidu.com/s?id=1631031386625608150&wfr=spider&for=pc)<br>
 [江苏连云港男子驾车拐弯剐蹭路边女友，随后将其撞倒后驾车碾压](https://www.56.com/u53/v_MTUwNjk1NTU0.html)<br>
+[留日女学生江歌被闺蜜刘鑫前男友陈世峰捅刀杀死](https://www.thepaper.cn/newsDetail_forward_1788678)<br>
+[华侨大学回应江歌案：陈世峰是本校毕业生在校曾殴打女友](http://www.sohu.com/a/204320401_313745)<br>
 
 ### 与学历无关
 [不寒而栗的爱情：北大女生遭男友精神折磨后自杀](https://www.thepaper.cn/newsDetail_forward_5226837)<br>
@@ -181,8 +193,13 @@
 [“百色助学网”负责人王杰强奸、诈骗](http://www.sohu.com/a/285430013_120078003)<br>
 [刘强东性侵](https://baike.baidu.com/item/%E5%88%98%E5%BC%BA%E4%B8%9C%E6%80%A7%E4%BE%B5%E9%97%A8/22851864?fr=aladdin)<br>
 [新城控股前董事长猥亵儿童案](https://baijiahao.baidu.com/s?id=1638382336334323716&wfr=spider&for=pc)<br>
+[“一天公益”社会工作服务中心理事长刘猛曾于温江工作站内对刘丽其实施性骚扰](http://m.sohu.com/a/327276360_260616)<br>
+[女演员杨采钰爆料好友曾遭到大导演性骚扰动手动脚](https://baijiahao.baidu.com/s?id=1607159957179531286&wfr=spider&for=pc)<br>
+[曾志伟性侵蓝洁瑛](https://www.sohu.com/a/215753993_413670)<br>
+[曾志伟性侵事件再添一锤拍摄《安乐战场》强暴女演员余倩雯](http://3g.163.com/all/article/D7S0QOL00517HEUV.html)<br>
+[19岁女星陈嘉桓被陈浩民非礼](https://henan.qq.com/zt2011/cjh/index.htm)<br>
 
-### 性骚扰
+### 性骚扰 公共场所
 [广西男子公交性骚扰被发现，掏刀恐吓被行拘15日](http://n.miaopai.com/media/LxKJlAiiw6k19G7RwVsuOiTnJ~XVCT-f)<br>
 [江西抚州多名女子公交车上遭遇变态“咸猪手”](https://zj.zjol.com.cn/video.html?id=1259461)<br>
 [南京女医生遭男子两次摸臀猥亵，被抓时：不就摸一下，还能坐牢吗](http://baijiahao.baidu.com/s?id=1650325489184111569&wfr=spider&for=pc)<br>

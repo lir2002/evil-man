@@ -3,12 +3,13 @@
 收录了近期所有的性别暴力事件新闻，包含0-18岁及以上女性遭受的暴力事件、高校性侵案件、性骚扰专题、婚女、网约车安全专题。持续更新，详情展开全部<br>
 
 ### 0-3岁
-[福建政和6个月女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
+[福建政和半岁女婴被性侵，嫌犯获刑五年](http://mn.sina.com.cn/news/s/2015-05-22/detail-iawzuney5987978.shtml?qq-pf-to=pcqq.c2c)<br>
+[台湾桃园县一变态男虐死10月大女婴 并多次性侵5岁干女儿](http://news.ifeng.com/c/7fZCCKdN64P)<br>
 [广州白云区男子性侵1岁女婴致其阴部破裂](http://news.cctv.com/society/20081030/100709.shtml)<br>
-[浙江宁波16个月大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
+[浙江宁波1岁半大女婴被五旬男子性侵](http://m.sohu.com/a/136385366_612707/)<br>
 [广西南宁3岁女童处女膜破裂称被老师打屁股 幼儿园监控缺失](https://app.peopleapp.com/Api/600/DetailApi/shareArticle?type=0&article_id=2274001&from=singlemessage&isappinstalled=0)<br>
 [江苏常州女婴出生3天被其父亲抱出院，以5万元卖出](http://sjycdn.miaopai.com/stream/HngoIYaNBYJB1-3mX-I9aCevRn-PBViQlg7cDQ___32.mp4?ssig=ecb8b76afe973b2683bd272e1d8858cd&time_stamp=1576218120937)<br>
-[台湾桃园县一变态男虐死10月大女婴 并多次性侵5岁干女儿](http://news.ifeng.com/c/7fZCCKdN64P)<br>
+
 
 ### 4-6岁
 [广东茂名多名幼童遭外派体能老师猥亵](https://weibo.com/tv/v/IgWcP70H5?fid=1034:4440364853986991)<br>
@@ -357,6 +358,7 @@
 ## 它们可以做 她们不能说
 2018年07月27日，关于央视主持人朱军性侵女实习生的微博被和谐，微博《[朱军，最后一颗子弹献给你](https://zhuanlan.zhihu.com/p/40622877)》 一文亦被删
 2018年11月2日，网友@徒有琴 将自己翻唱的歌《天朝渣男图鉴》放到微博，徒有琴童鞋一人分饰六角，饰演6个杀了丈夫的女人。她用上海、北京、广东等地方言讲述了为何杀夫，随后该歌曲被和谐，徒有琴使用了8年的微博亦被封禁。截至目前该歌曲仅在QQ音乐上有，可以试听
+2017年6月，北电侯亮平事件不了了之
 
 ### 偷拍 - 法律是不保护女性的  
 2015年7月，[陕西男子商场偷拍罚款500](https://xian.qq.com/a/20150719/009708.htm)<br>
